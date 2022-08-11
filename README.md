@@ -13,4 +13,6 @@ Das war das `Erste`, was er vergessen hatte, als ihn vor **Wochen**, *Monaten* o
 
 
 
-Um ein **Fett** darzustellen, schreiben sie `**Fett**`
+Um ein Text **Fett** darzustellen, schreiben sie `**Fett**`
+
+Um ein Text als `Code` darzustellen, schreiben sie `` `Code` ``
