@@ -7,7 +7,7 @@ In der [Dunkelheit](https://de.wiktionary.org/wiki/Dunkelheit) lauerte etwas.
 
 [![Schatten](https://ichrede.de/wp-content/uploads/2016/12/Schatten-Adventskalender-e1482086302292.jpg)](https://de.wikipedia.org/wiki/Schatten)
 
-Das war das `Erste`, was er vergessen hatte, als ihn vor **Wochen**, *Monaten* oder _Ewigkeiten_ die Dunkelheit umfangen hatte. Dann hatte er die Namen der anderen vergessen, die ihm einst so viel bedeutet hatten. Er erinnerte sich an [Schrecken](https://de.wikipedia.org/wiki/Schreck) und [Verzwiflung](https://de.wikipedia.org/wiki/Verzweiflung) - und das nur wegen dieses einen *Augenblicks*, der die Schwärze wie das ständige Schlagen einer Trommel durchdrang: ein paar Minuten voller ~~Schreie~~ und ~~Blut~~. 
+Das war das `Erste`, was er vergessen hatte, als ihn vor **Wochen**, *Monaten* oder _Ewigkeiten_ die Dunkelheit umfangen hatte. Dann hatte er die Namen der anderen vergessen, die ihm einst so viel bedeutet hatten. Er erinnerte sich an [Schrecken](https://de.wikipedia.org/wiki/Schreck) und [Verzwiflung](https://de.wikipedia.org/wiki/Verzweiflung) - und das nur wegen dieses einen *Augenblicks*, der die Schwärze wie das ständige Schlagen einer Trommel durchdrang: ein paar Minuten voller ~~Schreie~~ und ~~Blut~~. In diesem Raum aus roten Marmor und Glas waren Menschen gewesen, die er liebte; eine Frau, die ihren ~~Kopf verloren hatte ... Verloren~~, als wäre das ~~Köpfen~~ ihre Schuld gewesen.
 
 
 
