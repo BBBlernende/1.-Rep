@@ -1,5 +1,7 @@
 #  Throne of Glass
 ## 1 
+### Kapitel 1
+### Fürstin der Schatten
 In der [Dunkelheit](https://de.wiktionary.org/wiki/Dunkelheit) lauerte etwas. 
 <br> Es war **alt** und *grausam* und ging im Schatten seiner düsteren Gedanken auf und ab. Es war nicht von dieser Welt, es war hierher gebracht worden, um ihn mit seiner primitiven Kälte zu erfüllen. Noch trennte sie eine unsichtbare Mauer doch jedes Mal, wenn das Wesen daran entlangstrich, bröckelte sie ein wenig mehr. Er konnte sich nicht mehr an seinen Namen erinnern.
 
